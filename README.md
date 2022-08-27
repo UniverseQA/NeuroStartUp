@@ -6,3 +6,4 @@
 2. Высокая скорость поиска
 3. Низкая цена
 4. ![](https://i.gifer.com/9s96.gif)
+5. ![](C:\Users\79536\Downloads\Гифка с Gifius.ru.gif)
